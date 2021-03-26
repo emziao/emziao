@@ -1,0 +1,5 @@
+- hey lol 
+- piss off
+- simp ikik
+- koala addict??
+- lilo chan
